@@ -1,0 +1,1 @@
+# SolidPaladin.GITHUB.IO
